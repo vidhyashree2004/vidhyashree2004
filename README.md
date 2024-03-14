@@ -9,5 +9,5 @@
 📫 You can reach me at saravananvidhyashree@gmail.com, or connect with me on https://www.linkedin.com/in/vidhya-shree-saravanan-5983ab242/.
 
 🚀 Check out my repositories for projects and contributions in Programming.
-
-Let's collaborate and build something amazing together! 💪
+ 
+Looking forward for the intern and job opportunities. Let's collaborate and build something amazing together! 💪
